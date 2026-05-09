@@ -38,4 +38,4 @@ Creating advertising that people actually want to look at.
 
 ## Contact
 
-hello@bannerblaze.co
+hola@bannerblaze.com
